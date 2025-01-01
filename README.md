@@ -4,7 +4,7 @@ Get ready to experience the ultimate gaming experience with the Blox Fruits REDz
 
 # Download
 
-**Blox Fruits REDz Hub Mobile Script - [Download](https://dlgram.com/gedvs)**
+**Blox Fruits REDz Hub Mobile Script - [Download](http://adfoc.us/868809107900350)**
 
 # What's Included in the Script?
 
